@@ -1,5 +1,5 @@
 # 一，oneKey购买地址：
-购买优惠码（优惠10%）：K4UAPG
+购买优惠码（**优惠10%**）：K4UAPG
 
 也可以用这个链接购买：https://onekey.so/r/K4UAPG 
 
